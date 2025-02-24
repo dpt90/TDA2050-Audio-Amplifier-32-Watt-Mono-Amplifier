@@ -1,0 +1,1 @@
+# TDA2050-Audio-Amplifier-32-Watt-Mono-Amplifier
